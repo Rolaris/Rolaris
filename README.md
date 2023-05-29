@@ -1,5 +1,5 @@
 - 🥺 Hi, I’m @Rolaris, also
-- 👀 I’m interested in ...
+- 👀 I’m interested in how to get your pants.
 - 🤔 I’m currently learning: JAvAsCrIpT
 - 🥷🏻 I’m looking to collaborate on some Stinkin' Jones Expeditinary Forces (?)...
 - 📫 How to reach me: khanacademy.org/profile/redvolt
