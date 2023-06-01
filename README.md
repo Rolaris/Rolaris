@@ -1,7 +1,7 @@
 - 🥺 Hi, I’m @Rolaris, also a very cool person.
 - 👀 I’m interested in how to get your pants.
 - 🤔 I’m currently learning: JAvAsCrIpT
-- 🥷🏻 I’m looking to collaborate on some Stinkin' Jones Expeditinary Forces (?)...
+- 🥷🏻 I’m looking to recruit for the Stinkin' Jones Expeditinary Forces (?)...
 - 📫 How to reach me: khanacademy.org/profile/redvolt
 
 <!---
